@@ -1,0 +1,12 @@
+# Assalamu Alaikum, My name is Md. Kausar Uddin Ahmed. I'm a Muslim student, passionate learner, aspiring teacher, and a naive ambivert who embraces challenges with an unapologetic spirit!
+- I'm currently pursuing my second year of undergraduate studies in the Department of Pharmacy at the School of Engineering, Science and Technology, Manarat International University, Dhaka, Bangladesh.
+- I'm also a Junior Research Assistant at Pratyasha Health Biomedical Research Center.
+- I'm the founder and CEO of Binirman Academy, a platform that aims to reconstruct the generation with a firm conviction.
+- I'm currently an academic mentor of biology at Lakecity Guidance Counselling.
+- I'm also the editor of PharmaBhaiya, a prestigious magazine for pharmacy and allied health sciences that invites you to explore the fascinating world of pharmacy and covers the latest developments and innovations in the field, with articles, reviews, interviews, case studies, poetry, news and events. It also helps you master the topics that are challenging and provides clear and simple explanations.
+- I'm also a co-founder of IKO Pharma Hub, which organizes helpful podcasts, seminars, pharmafests for pharmacy students.
+- I'm a science writer at Tachyon and also a creative writer at The Campus Mirror, where I have published three poems and one article.
+- Previously, I taught mathematics and science at United Coaching Center and biology and chemistry at Highland Coaching Center. As a teacher, I adopt a student-centric approach and customize my teaching methodology to cater to the unique learning requirements and preferences of each student. By doing so, I can effectively engage with my students and foster their academic progress, resulting in a rewarding and fulfilling educational journey.
+- I'm also a campus ambassador of National STEAM Olympiad and National Environment Olympiad, and a former campus ambassador of Interactive Cares.
+- I'm passionate about learning new things and sharing my knowledge with others.
+- I believe that education is the key to unlocking one’s potential and achieving one’s dreams.
